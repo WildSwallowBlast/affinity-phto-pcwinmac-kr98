@@ -1,4 +1,4 @@
-# 
+# Turbo Affinity Photo plugins pour Mac OS | Officiel Affinity Photo plugins pour PC Windows. Avec simulation physique et outil dégradé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
